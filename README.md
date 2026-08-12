@@ -1,0 +1,1 @@
+lantas mengapa ku 
